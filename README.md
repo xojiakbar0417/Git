@@ -1,1 +1,1 @@
-# I am N.Khojiakbar. These are my projects.
+# I am Khojiakbar. These are my projects.
